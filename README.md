@@ -21,10 +21,10 @@ Por isso, trazemos debates onde **humano e IA** dialogam em tempo real, criando 
 
 Estamos em todas as principais plataformas:  
 
-- [YouTube]([https://youtube.com/@PodEu_PodIa)) ▶️ vídeos com cortes e episódios completos  
-- [Spotify]([https://show/0SktUnq0wTAFu8MN8Q2Wmq)) 🎵 versão em áudio  
+- [YouTube]([https://youtube.com/@PodEu_PodIa) ▶️ vídeos com cortes e episódios completos  
+- [Spotify]([https://show/0SktUnq0wTAFu8MN8Q2Wmq) 🎵 versão em áudio  
 - [Amazon Music](https://podcasters.amazon.com/podcasts/72a85356-fdf8-4e00-b0ec-d4bde77e348b)  
-- [Deezer]([https://deezer.com/search/Podeupodia/))  
+- [Deezer]([https://deezer.com/search/Podeupodia/)  
 
 ---
 
